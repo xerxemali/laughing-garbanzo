@@ -1,0 +1,1 @@
+Seventy-one percent of households report they have at least one snorer. Forty-five percent of those surveyed admit they snore, 35% said their partner snores, 12% said their child snores and 9% reported their pet snores
