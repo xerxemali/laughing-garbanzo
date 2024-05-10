@@ -1,0 +1,1 @@
+The Romans used to clean themselves with olive oil since they did not have any soap. They would pour the oil on their bodies, and then use a strigil, which is type of blade, to scrape off any dirt along with the oil
